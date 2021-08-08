@@ -26,7 +26,7 @@ If you would like to know more about me and my projects, you are free to mail me
 - 👯 I’m looking to collaborate on open source
 - 💬 Ask me about ... Anything, I am happy to help
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I speak 4 languages ( English, Spanish, Romanian, Russian)
+- ⚡ Fun fact: I speak 4 languages ( English, Hindi, French)
 
 <br />
 <br /> 
